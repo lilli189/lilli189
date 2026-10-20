@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌸 Hi, I'm Lilli<br><br>I'm a student at Heidelberg University, studying Molecular Biotechnology (5th semester).<br>
+🌸 Hi, I'm Lilli<br><br>I'm a student at Heidelberg University, studying Molecular Biotechnology (Master).<br>
 
 
 ## 🌐 Socials:
